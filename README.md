@@ -1,0 +1,2 @@
+# ghostdanhediye.github.io
+Love
